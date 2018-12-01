@@ -1,1 +1,1 @@
-# cdn.io
+cdn.gek7777.top
